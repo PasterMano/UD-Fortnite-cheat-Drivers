@@ -8,3 +8,5 @@ How to link the handler with this source ? Just paste this file : https://cdn.di
 In driver file ( in file source (zerotwo/driver))
 
 Him bad paster and selling this drivers and selling pasted cheat
+
+Dm me in discord if u need any help !RTMano#1111
